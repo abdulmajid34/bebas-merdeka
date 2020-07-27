@@ -1,0 +1,1 @@
+nama saya abdul majid
